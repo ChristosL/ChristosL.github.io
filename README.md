@@ -1,2 +1,2 @@
-# Christos Lyssiotis Art
+# Christos Lyssiotis
 
